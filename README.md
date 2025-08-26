@@ -1,1 +1,2 @@
-# DavidVart.github.io
+<< David Vargas >>
+<< SI 338 Fall 2025 >>
